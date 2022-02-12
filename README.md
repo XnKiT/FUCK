@@ -1,5 +1,1 @@
-# FUCKTHEPOLICE
-
-
-
-ρℓεαsε υsε [sεтү](https://sety.io)
+# ρℓεαsε υsε [sεтү](https://sety.io)
